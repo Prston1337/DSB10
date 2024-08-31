@@ -12,4 +12,4 @@ My Data Scientist and analytics Project
 reach out to me via Email: pudittrakul@gmail.com
 
 ##image
-![Ivy](https://www.google.co.th/url?sa=i&url=https%3A%2F%2Fwww.gq.com%2Fstory%2Ffrank-ocean-is-a-long-time-car-snob&psig=AOvVaw3Wo7zM6LsGispFg6QH4p2k&ust=1725160756091000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMizv-KinogDFQAAAAAdAAAAABAJ)
+![Ivy](https://supercarblondie.com/wp-content/uploads/From-his-obsession-with-classic-BMWs-to-his-modern-day-McLaren-supercar-lets-have-a-look-at-Frank-Oceans-car-collection.jpeg)
